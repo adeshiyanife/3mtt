@@ -8,3 +8,5 @@ So its almost end of the year and Mr Alex needed to see customers that purchased
 As the company takes its product to a rural area Mr Alex asked sales with less price and highest price to be certain about what is most likely to sell most in that rural area
  
 Mr Alex asked for records of an unsatisfied customer who complained about the size and colour of items bought from TrenddyWears
+
+"C:\Users\User\OneDrive\Desktop\Blessing Project\TREDDYWEARS PowerP.pptx"
